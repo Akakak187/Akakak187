@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Akakak187. 
+- 👀 I’m interested in starting my own online business 
+- 🌱 I’m currently learning how to use my spare time to equip myself with the proper tools and knowledge to kickstart a business
+- 💞️ I’m looking to collaborate on any project that would be of use in my current life objectives.
+- 📫 How to reach me...DM
